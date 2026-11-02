@@ -1,1 +1,1 @@
-# Software-Engineering-and-Project-Management-and-Lab---ICT-3107-ICT-3108-
+# Software-Engineering-and-Project-Management-and-Lab---(ICT-3107-ICT-3108)
